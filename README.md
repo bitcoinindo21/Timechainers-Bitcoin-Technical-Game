@@ -1,5 +1,5 @@
 
-Timechainers | From Genesis to Infinity, One Block at a Time.
+Timechainers: From Genesis to Infinity, One Block at a Time.
 ---
 <img width="4000" height="3167" alt="TIMECHAINERS BOX BILINGUAL TOP" src="https://github.com/user-attachments/assets/8a34d848-b2e9-4134-9186-1a76f45fece1" />
 
